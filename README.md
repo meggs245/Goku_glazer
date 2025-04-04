@@ -1,2 +1,3 @@
 # Goku_glazer
-I can do it all ni- lemme stop now, sorry
+HEY!👋
+my names megan, I'll have u know that I talk a lot. for more got to strawpage 🫰🎀
